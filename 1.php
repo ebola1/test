@@ -15,4 +15,19 @@ n/fd
 n/df
 n/
 f/nd
-'
+'gt
+ujbet
+'bh
+etbj
+'rt;b
+jrt;b
+j;rt
+mrt
+m
+y;
+y /;r
+n;/g'
+ ;g'
+ n;
+g;
+f
